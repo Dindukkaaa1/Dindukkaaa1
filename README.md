@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Dindukkaaa1,but you can call me Dindu by short.
+- 👀 I’m interested in making games to roblox
+- 🌱 I’m currently learning basics of scripting
+- 💞️ I’m looking to collaborate on roblox scripters,modelers and audio makers
+- 📫 How to reach me: sen me a message to my email dindunpelitpuhelin@hotmail.com
+- 🤝 roblox group name: find the apples. link to the group -----> https://web.roblox.com/groups/13114994/Find-The-Apples#!/about
